@@ -7,7 +7,7 @@ Aqui estão algumas ideias para você começar:
 
 - 🔭 Atualmente nao estou trabalhando.
 - 🌱 Atualmente estou apenas na escola.
-- 👯 Procuro nao procuro colaborar.
+- 👯 nao procuro colaborar.
 - 🤔 Nao estou procurando ajuda.
 - 📫 Como entrar em contato comigo: enzo.rodrigues.silva@escola.pr.gov.br
 - 👾 sexualidade: Optimus prime.
