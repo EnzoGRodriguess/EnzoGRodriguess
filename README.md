@@ -12,5 +12,7 @@ Aqui estão algumas ideias para você começar:
 - 📫 Como entrar em contato comigo: enzo.rodrigues.silva@escola.pr.gov.br
 - 👾 sexualidade: Optimus prime.
 - ⚡ Curiosidade: 1k+ horas de ark
+- [musica que presta](https://youtu.be/pcfX5B-F8Tw?si=poQt-SptIHlw1sca)
+- 
   ![](https://media1.tenor.com/m/11Q2N7c5WuoAAAAd/2wheeled-car-amogus.gif)
   
